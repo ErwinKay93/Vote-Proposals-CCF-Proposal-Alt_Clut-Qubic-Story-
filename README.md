@@ -9,17 +9,17 @@
 
 ## Intro
 
-I’m not a big fan of having AI hijack my output, so I wrote this myself — like I do with all my work…
+I’m not a big fan of having AI hijack my output, so I wrote this myself like I do with all my work…
 
 I love $Qubic. It's the strongest crypto project I’ve ever seen in my 7 years in crypto. That’s why I’ve dedicated over 1,440+ hours to Sergey’s vision and the computer's power.
 
-- I've written 40+ X posts exclusively about Qubic — generating **250,000+ views**.
+- I've written 40+ X posts exclusively about Qubic generating **250,000+ views**.
 - My work has **indirectly brought in hundreds of thousands to potentially millions** in investment and visibility to Qubic.
-- This proposal outlines a **33-video series** — of which **12 are already completed**.
+- This proposal outlines a **33-video series** of which **12 are already completed**.
 
-I aim to **bridge the gap between education, entertainment, and virality** — creating layered, sometimes delusional (😉) content with the power to break out of the crypto bubble and reach new investors.
+I aim to **bridge the gap between education, entertainment, and virality** creating layered, sometimes delusional (😉) content with the power to break out of the crypto bubble and reach new investors.
 
-As Qubic's market cap rises, **so will my content’s reach**, which already totals **25,000+ views** and growing rapidly. I’m obsessed, I’m strategic, and I’m here to help **40%+ of the world’s population** — one video at a time.
+As Qubic's market cap rises, **so will my content’s reach**, which already totals **25,000+ views** and growing rapidly. I’m obsessed, I’m strategic, and I’m here to help **40%+ of the world’s population** one video at a time.
 
 ---
 
@@ -29,7 +29,7 @@ As Qubic's market cap rises, **so will my content’s reach**, which already tot
 - Never claimed **a single QUBIC**, even as an ambassador
 - 6+ months of **2 original posts per week**
 - 3 videos per week for the past month
-- **All content is self-created** — from ideation to execution
+- **All content is self-created** from ideation to execution
 
 ### Additional Contributions
 
@@ -54,7 +54,7 @@ As Qubic's market cap rises, **so will my content’s reach**, which already tot
 
 ---
 
-## Budget (QUBIC-only — not fiat)
+## Budget (QUBIC-only not fiat)
 
 | Timing          | Amount        | Notes                                                                 |
 |-----------------|---------------|-----------------------------------------------------------------------|
@@ -98,7 +98,7 @@ August 1 – September 30, 2025
 
 ## Conclusion
 
-This is not a beginning — it’s a **continuation of something already in motion**, fueled by obsession, strategy, and genuine love for Qubic.
+This is not a beginning it’s a **continuation of something already in motion**, fueled by obsession, strategy, and genuine love for Qubic.
 
 I believe in Qubic. I believe in the builders. I believe in helping the world discover the truth behind this project.
 
